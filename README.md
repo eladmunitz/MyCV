@@ -23,7 +23,7 @@
   - Content writing for new middle division textbook project.
 
 **Principal**, September 2016 – June 2019 <br/> 	       			    **Talmud Torah Darkei Noam** Bet Shemesh, Israel
-  - General Studies principal with responsibilities including curriculum development, teachers mentoring, special events, and overseeing faculty.    
+  - Responsibilities included curriculum development, teachers mentoring, special events, and overseeing faculty.    
   - Introduced and enrolled the school in a new computerized data system (Mashov).  
   
 **Online Instructor**, Sept. 2015- June 2017 <br/>                               **Bonim B’Yachad** Modein, Israel
