@@ -12,7 +12,7 @@
    - **Native English and Hebrew speaker.**
 
 ## PROFESSIONAL EXPERIENCE
-**Business Development Manager**, June 2020 - Present &nbsp &nbsp &nbsp &nbsp        	    	    **Sulamot** Migdal Oz, Israel
+**Business Development Manager**, June 2020 - Present <br/>      	    	    **Sulamot** Migdal Oz, Israel
   - Responsible for production, sales, and marketing, of English Division printed and digital products.
   - Facilitate professional development and ongoing support to clients. 
   - Content writing of new products.
