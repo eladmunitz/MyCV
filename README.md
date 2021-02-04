@@ -13,9 +13,10 @@
 
 ## PROFESSIONAL EXPERIENCE
 **Business Development Manager**, June 2020 - Present          	    	   	**Sulamot** Migdal Oz, Israel
-•	Responsible for production, sales, and marketing, of English Division printed and digital products.
-•	Facilitate professional development and ongoing support to clients. 
-•	Content writing of new products.
+
+  - Responsible for production, sales, and marketing, of English Division printed and digital products.
+  - Facilitate professional development and ongoing support to clients. 
+  - Content writing of new products.
 
 **Education Consultant**, July 2015 - Present 	    	   **Center for Educational Technology** Tel Aviv, Israel
 •	Consults on the proper usage of technology in the classroom and math instruction.
