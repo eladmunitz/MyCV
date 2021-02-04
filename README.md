@@ -42,7 +42,7 @@
   - Taught math to students in a NYC DOE remedial program for non-public school children. 
 
 **Real Estate Broker**, 1996 – 2005	<br/> 	      **Hentz-Dor Real Estate Inc.** Long Island City, NY
-  - Solicited new business for industrial / commercial real estate firm through canvassing local businesses and researching company relocation plans.
+  - Helped industrial / commercial businesses with their relocation plans.
   - Negotiated pricing and terms of conditions, prepared memorandum of agreements, delivered presentations, advised customers of financing options, and closed deals.
 
 ## EDUCATION & CERTIFICATIONS
